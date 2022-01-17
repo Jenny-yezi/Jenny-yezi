@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Jenny-yezi
+- 👀 I’m interested in reading and electronics
+- 🌱 I’m currently learning skills
+- 💞️ I’m looking to collaborate on study
+- 📫 How to reach me 
